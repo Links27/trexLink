@@ -1,2 +1,1 @@
-# trexLink
-（⊙ｏ⊙）
+# Juegos-compatibles-con-dispositivos
